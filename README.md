@@ -38,3 +38,9 @@ Je suis, je suis... http://lolheaven.com/i-have-no-idea-what-i-am-doing-2/
 Quand un verre est plein on le vide. Et quand il est vide on le plaint.
 On boira du lait quand les vaches mangeront du raisin.
 Conduire ou choisir, il faut boire.
+
+*Il était une fois, dans un pays lointain, un groupe d'irréductibles* **__codeurs.__**
+
+Ils possédaient un **secret** jalousement gardé... **__La potion BeCode!__**
+
+La recette de sa préparation demeurait connue par seulement 2 individus du groupe, les 2 *Cydruis*, car cet ainsi qu'ils se faisaient appelées, **Emily** et **Alexandre.**
