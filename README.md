@@ -34,3 +34,7 @@ J'ai:
  *une grande gueule  
 
 Je suis, je suis... http://lolheaven.com/i-have-no-idea-what-i-am-doing-2/
+
+Quand un verre est plein on le vide. Et quand il est vide on le plaint.
+On boira du lait quand les vaches mangeront du raisin.
+Conduire ou choisir, il faut boire.
