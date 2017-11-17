@@ -14,3 +14,6 @@ Elles s'affrontent pour la suprématie de la planète compote. Personne ne sait 
 
 MIKE WAS THERE
 Alixe too
+
+au bout d'un moment, il se rendit compte que le manque d'imagination ne gagnait pas que lui
+et que tout le monde finissait par écrire n'importe quoi !!!
