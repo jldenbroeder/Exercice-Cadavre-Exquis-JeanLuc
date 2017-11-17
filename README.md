@@ -19,3 +19,5 @@ au bout d'un moment, il se rendit compte que le manque d'imagination ne gagnait 
 et que tout le monde finissait par écrire n'importe quoi !!!
 
 Tu auras compris que la violence ne résout rien lorsqu'un moustique ce sera poser sur tes couilles.
+
+Alors, le train était-il à l'heure aujourd'hui?
