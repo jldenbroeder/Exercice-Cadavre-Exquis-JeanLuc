@@ -46,3 +46,14 @@ Ils possédaient un **secret** jalousement gardé... **__La potion BeCode!__**
 La recette de sa préparation demeurait connue par seulement 2 individus du groupe, les 2 *Cydruis*, car cet ainsi qu'ils se faisaient appelées, **Emily** et **Alexandre.**
 
 *HODOR* **HODOR** HODOR!
+
+
+## Message de Bernard au nôble Jean-Luc
+
+* Salut Jean-Luc, enchanté de la **discussion** de hier à propos du __CMS__
+
+Et bla bla, bref... Faudra contacter __Didier__ que nous a présenté __Alexandre__ 
+
+Deuxième étage mais j'ai oublié le nom de la **salle**
+
+------------------fin message de bernard-------------------
