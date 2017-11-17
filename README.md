@@ -17,3 +17,5 @@ Alixe too
 
 au bout d'un moment, il se rendit compte que le manque d'imagination ne gagnait pas que lui
 et que tout le monde finissait par écrire n'importe quoi !!!
+
+Tu auras compris que la violence ne résout rien lorsqu'un moustique ce sera poser sur tes couilles.
