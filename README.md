@@ -23,3 +23,14 @@ Tu auras compris que la violence ne résout rien lorsqu'un moustique ce sera pos
 Alors, le train était-il à l'heure aujourd'hui?
 
 Supercalifragilisticexpialidocious
+
+# Qui suis-je?
+Je suis:
+ * **bleu** 
+ *avec des petits points rouge 
+ *et des poils dessus
+J'ai: 
+ *une forme bizarroides 
+ *une grande gueule  
+
+Je suis, je suis... http://lolheaven.com/i-have-no-idea-what-i-am-doing-2/
